@@ -1,10 +1,11 @@
 # jsgame
-qrhqrhhqeg
+qrhqr24hhqeg
 355
-njmhfdjthaqqrgh4tgrqha
+njmh23fdjthaqqrgh4tgrqha
 eqgeqf
 aegsehqt45h63au5ghjs647k58eqv
-hrqhrqadbahqh
+hrqhrqadbahqh2￑
 njmhfdjthseht45h6h6sa3y56sj4
-yj224542
-gqqegqdf
+yj224542￐2
+gqqeg24qdf
+￑2
