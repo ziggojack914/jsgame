@@ -1,7 +1,7 @@
 # jsgame
 sBSNODLCKKXLp4MyzqEYloldI
 355
-njmh23fdjthaqqrgh4tgrqha
+njmh23fdjаааthaqqrgh4tgrqha
 eqgeqfgwwrh
 aegsehqt45h63au5ghjs647k58eqv
 hrqhrqadbahqh2￑
