@@ -1,5 +1,5 @@
 # jsgame
-o0DfUdIpABXiPxqm47G40yE4t
+Df6ID0jXP905m17ILNO5vkpCS
 355
 njmh23fdjаааthaqqrgh4tgrqha
 eqgeqfgwwrh
